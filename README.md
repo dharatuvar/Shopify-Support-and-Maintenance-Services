@@ -11,19 +11,19 @@ Managing multiple tasks for your online store is complicated enough. To save tim
 
 ## Meetanshi’s Shopify Virtual Assistants Include
 
-•       Managing social media platforms
-•       Excellent customer service
-•       Market research
-•       Data entry
-•       Administrative tasks
+*     Managing social media platforms
+*       Excellent customer service
+*       Market research
+*       Data entry
+*       Administrative tasks
 
 ## Why Choose Meetanshi?
 
-•       Years of Experience
-•       Expert Shopify Professionals
-•       Competitive Pricing
-•       Excellent Support Team
-•       Prompt Response
+*       Years of Experience
+*       Expert Shopify Professionals
+*       Competitive Pricing
+*        Excellent Support Team
+*       Prompt Response
 
 For more information, visit [https://meetanshi.com/hire-shopify-virtual-assistant.html](https://meetanshi.com/hire-shopify-virtual-assistant.html)
 
